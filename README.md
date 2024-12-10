@@ -1,2 +1,0 @@
-# Kentang
-P
